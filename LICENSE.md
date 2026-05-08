@@ -1,4 +1,4 @@
-
+Bear for macOS rare Plugin - offline access and multi-device sync is the best Bear for macOS plugin, featuring offline access and multi-device sync. Safe, efficient, and optimized
 
 
 
